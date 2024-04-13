@@ -1,0 +1,3 @@
+Afrofuturism can be a form of speculative design since it envisions an alternative future rooting in a group's experience. Although it's science fiction, it critiques present day issues relating to racism and social injustice. "Space is the place" shows a different reality, expressing a perspective on modern societal issues.
+Projects in "Beyond Green" show how art can function as a form of speculative fiction, how to live more sustainably. 
+Both topics reflect how we interact with our environment and communities: suggesting creative ways to live "better": allowing you to imagine possible futures while critiquing the present. 
