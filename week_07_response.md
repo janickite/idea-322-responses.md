@@ -1,1 +1,3 @@
 Which of these projects did you find the most engaging, and why?
+The term "techno heroic" caught my attention. "The majority of design programmes are ill-equipped to teach students how to design for the complex world of the 21st century" due to the lack of any real evolutionary methods emerging since the 20th century. **The SpeculativeEdu project:** emphasizes that speculative design must be implemented in holistic education for students, due to the critical state of the world. Students must learn to think more creatively with the role of design to avert the crisis relating to our futures: rejecting wishful thinking. 
+I found this intriguing since it applies to our current experience as students and what I have observed in Design courses. 
